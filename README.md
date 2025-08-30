@@ -26,6 +26,8 @@ Every frame tells a story—let’s create yours together.
 View Portfolio
 Get in Touch
 
+Photo by Milad Farhani from Pexels: https://www.pexels.com/photo/close-up-photo-of-a-woman-with-makeup-11644250/
+Photo by Pegah Sharifi from Pexels: https://www.pexels.com/photo/face-of-posing-woman-17031615/
 ------------------------------------------------------------------------------
 
 ## Meet Alex Carter
@@ -34,6 +36,7 @@ Photography is more than just capturing images—it’s about preserving emotion
 
 Read More
 
+https://unsplash.com/photos/man-in-black-crew-neck-t-shirt-holding-black-video-camera-xTNku_VvNe8
 ------------------------------------------------------------------------------
 
 ## Explore My Work
@@ -48,6 +51,9 @@ Street Photography – Unscripted moments that tell stories of everyday life.
 
 View Full Portfolio
 
+Photo by Bri Schneiter from Pexels: https://www.pexels.com/photo/calm-body-of-lake-between-mountains-346529/
+Photo by Jayro Cerqueira da Silva from Pexels: https://www.pexels.com/photo/two-women-lying-down-4338541/
+Photo by Olena Bohovyk from Pexels: https://www.pexels.com/photo/man-in-brown-jacket-sitting-on-chair-in-front-of-fruit-stand-3646171/
 ------------------------------------------------------------------------------
 
 ## What Clients Say
@@ -61,6 +67,7 @@ View Full Portfolio
 “His street photography brings life to the unseen stories of everyday people. Truly inspiring!"
 — David M., Art Collector
 
+Photo by Valeriia Miller from Pexels: https://www.pexels.com/photo/a-vintage-camera-on-a-chair-near-a-plant-8259266/
 ------------------------------------------------------------------------------
 
 ## Let’s Create Something Beautiful Together
@@ -69,10 +76,19 @@ Looking for professional photography services or want to collaborate? Let’s br
 
 Book a Session
 
+https://unsplash.com/photos/man-in-black-crew-neck-t-shirt-wearing-brown-hat-btqKL0n_qVE
 ------------------------------------------------------------------------------
 
 ## Follow My Journey
 Follow @[instagram handle]
+
+https://unsplash.com/photos/man-using-umbrella-crossing-the-street-during-daytime-Ix1TiS-E17E
+https://unsplash.com/photos/man-in-brown-crew-neck-shirt-HxHa_p3_OeQ
+https://unsplash.com/photos/camera-studio-set-up-aS4Duj2j7r4
+https://unsplash.com/photos/man-in-black-t-shirt-and-blue-denim-jeans-holding-black-dslr-camera-ONaTkvt4hbE
+Photo by Steshka Croes from Pexels: https://www.pexels.com/photo/grayscale-photo-of-a-topless-man-4536190/
+Photo by Milad Farhani from Pexels: https://www.pexels.com/photo/close-up-photo-of-a-woman-with-makeup-11644250/
+Photo by Pegah Sharifi from Pexels: https://www.pexels.com/photo/face-of-posing-woman-17031615/
 
 ------------------------------------------------------------------------------
 
@@ -104,6 +120,7 @@ Photography is more than just images—it’s a way of seeing the world. Through
 
 I’m Alex Carter, a photographer specializing in landscape, portrait, and street photography. My journey began over a decade ago when I picked up my first camera and discovered a passion for storytelling through visuals. Whether I’m capturing the raw energy of a city street, the tranquility of a mountain sunrise, or the depth of a person’s gaze, my goal is always the same—to create timeless images that resonate.
 
+https://unsplash.com/photos/man-in-brown-crew-neck-shirt-holding-gray-and-silver-video-camera-JXF2-bRKqC4
 ------------------------------------------------------------------------------
 
 ## My Photography Journey
@@ -114,6 +131,7 @@ Featured in: National Geographic, Vogue, and Time Magazine
 Exhibitions: Showcased in galleries in New York, London, and Tokyo
 Collaborations: Worked with brands, models, and agencies worldwide
 
+https://unsplash.com/photos/man-in-blue-crew-neck-t-shirt-holding-black-dslr-camera-Un9uSIP_ewQ
 ------------------------------------------------------------------------------
 
 ## My Approach & Philosophy
@@ -124,6 +142,7 @@ Capture raw, unfiltered emotions
 Tell a compelling story through every frame
 Create visuals that leave a lasting impression
 
+https://unsplash.com/photos/man-in-black-shirt-holding-black-dslr-camera-J2b_8YMyIvs
 ------------------------------------------------------------------------------
 
 ## Behind the Scenes
@@ -134,6 +153,10 @@ If you’d like to work together, collaborate, or simply talk photography, I’d
 
 Get in Touch
 
+https://unsplash.com/photos/man-in-gray-t-shirt-and-black-shorts-holding-black-stroller-near-black-suv-during-daytime-M8SHcO8KXAI
+https://unsplash.com/photos/man-in-brown-crew-neck-t-shirt-wearing-red-knit-cap-holding-microphone-cYbd7k7VCpI
+https://unsplash.com/photos/a-man-standing-next-to-a-woman-holding-a-camera-XuWtoHUKqBk
+https://unsplash.com/photos/a-group-of-people-standing-around-a-camera-CcOqRM1rDQg
 *********************************************************************************
 
 # Photography Portfolio Website - Portfolio
@@ -151,25 +174,50 @@ Photography is my way of capturing emotions, light, and untold stories. Each ima
 Landscape Photography
 Nature’s beauty in its purest form—expansive horizons, breathtaking sunrises, and serene landscapes.
 
+Photo by Bri Schneiter from Pexels: https://www.pexels.com/photo/calm-body-of-lake-between-mountains-346529/
+https://unsplash.com/photos/house-in-middle-of-grass-field-M0OIyN5u8ZM
+Photo by Pixabay from Pexels: https://www.pexels.com/photo/green-hill-near-body-of-water-462162/
+Photo by Pixabay from Pexels: https://www.pexels.com/photo/black-mountains-under-the-stars-at-nighttime-355465/
+https://unsplash.com/photos/birds-eye-view-photograph-of-green-mountains-01_igFr7hd4
+Photo by Aron Visuals from Pexels: https://www.pexels.com/photo/cropland-duiring-night-time-1743165/
 ------------------------------------------------------------------------------
 
 ## Portrait Photography
 Capturing raw emotions and unique personalities, one frame at a time.
 
+Photo by Mohammadreza Babaei from Pexels: https://www.pexels.com/photo/model-with-glamour-makeup-15783136/
+Photo by sahar photography from Pexels: https://www.pexels.com/photo/portrait-of-a-tattooed-young-adult-male-30856711/
+Photo by Pegah Sharifi from Pexels: https://www.pexels.com/photo/face-of-posing-woman-17031615/
+Photo by Anh Nguyen from Pexels: https://www.pexels.com/photo/moody-portrait-of-a-man-by-the-window-30783684/
+Photo by Mohammadreza Babaei from Pexels: https://www.pexels.com/photo/women-lying-and-embracing-with-their-faces-close-to-each-other-16262888/
+Photo by Hans Abdallah from Pexels: https://www.pexels.com/photo/stylish-african-male-model-in-thoughtful-pose-30789849/
 ------------------------------------------------------------------------------
 
 ## Street Photography
 Capturing raw emotions and unique personalities, one frame at a time.
 
+Photo by Musa Ortaç from Pexels: https://www.pexels.com/photo/man-in-brown-jacket-and-brown-hat-standing-on-sidewalk-with-a-guitar-4031864/
+Photo by 𝗛&𝗖𝗢 　 from Pexels: https://www.pexels.com/photo/people-standing-on-road-close-up-photography-3073037/
+Photo by Olena Bohovyk from Pexels: https://www.pexels.com/photo/man-in-brown-jacket-sitting-on-chair-in-front-of-fruit-stand-3646171/
+Photo by Nancy Bourque from Pexels: https://www.pexels.com/photo/black-and-brown-underground-road-with-concrete-buildings-1209979/
+Photo by Juan Pablo Serrano  from Pexels: https://www.pexels.com/photo/man-wearing-gray-and-black-striped-crew-neck-shirt-holding-smartphone-1091270/
 ------------------------------------------------------------------------------
 
 ## Featured Projects
 The Soul of the City
 
+https://unsplash.com/photos/man-playing-musical-instrument-on-street-in-grayscale-photography-oD00ZBAZSvg
+https://unsplash.com/photos/a-black-and-white-photo-of-a-city-street-9zxDnd5h0s4
+https://unsplash.com/photos/a-street-with-graffiti-on-it-dn9q1meZvG0
+https://unsplash.com/photos/gray-and-black-pathway-beside-building-zpRsIR1H_qc
 ------------------------------------------------------------------------------
 
 ## Wanderlust Landscapes
 
+Photo by Amine  M'siouri  from Pexels: https://www.pexels.com/photo/man-wearing-cap-and-crew-neck-shirt-standing-in-the-middle-of-forest-2108845/
+https://unsplash.com/photos/black-concrete-road-surrounded-by-brown-rocks-tMzCrBkM99Y
+Photo by Pixabay from Pexels: https://www.pexels.com/photo/boats-and-body-of-water-417344/
+Photo by Simon Migaj from Pexels: https://www.pexels.com/photo/silhouette-photography-of-person-standing-on-green-grass-in-front-of-mountains-during-golden-hour-746386/
 ------------------------------------------------------------------------------
 
 ## Faces of New York
@@ -178,6 +226,10 @@ Looking for custom photography, collaborations, or prints? Let’s bring your vi
 
 Book a Session
 
+https://unsplash.com/photos/man-in-white-dress-shirt-sitting-on-chair-near-the-wall-vh9zk7GXgo4
+https://unsplash.com/photos/man-in-gray-coat-walking-on-pedestrian-lane-during-daytime-rs-KInv1T8U
+Photo by Craig Adderley from Pexels: https://www.pexels.com/photo/person-leaning-on-wall-1534834/
+https://unsplash.com/photos/a-man-standing-next-to-a-car-talking-on-a-cell-phone-7WnkMp3TDAM
 **********************************************************************************
 
 # Photography Portfolio Website - Services
@@ -200,6 +252,11 @@ Family & Couple Shoots
 
 Book a session
 
+Photo by Ulkar Batista from Pexels: https://www.pexels.com/photo/moody-portrait-of-pensive-adult-with-blue-lighting-30708256/
+Photo by SHVETS production from Pexels: https://www.pexels.com/photo/woman-with-face-accessories-touching-a-sculptures-face-7561223/
+https://unsplash.com/photos/a-close-up-of-a-person-with-a-tattoo-on-her-chest-QyMYIpaCvkU
+Photo by Criativithy from Pexels: https://www.pexels.com/photo/upside-down-photo-of-a-woman-1821095/
+Photo by Matheus Bertelli from Pexels: https://www.pexels.com/photo/woman-holding-fireflies-573299/
 ------------------------------------------------------------------------------
 
 ## Commercial & Brand Photography
@@ -213,6 +270,11 @@ Real Estate & Interior Photography
 
 Request a Quote
 
+https://unsplash.com/photos/black-and-white-wooden-table-and-chairs-wRzBarqn3hs
+Photo by Pixabay from Pexels: https://www.pexels.com/photo/low-angle-photography-of-building-273209/
+https://unsplash.com/photos/cosmetic-set-1mp7rF7_j2I
+https://unsplash.com/photos/green-and-white-canada-dry-ginger-ale-can-eSIlQfibAo8
+Photo by Luca De Massis from Pexels: https://www.pexels.com/photo/man-in-white-suit-sitting-on-bathtub-9136309/
 ------------------------------------------------------------------------------
 
 ## Event Photography
@@ -226,6 +288,11 @@ Behind-the-Scenes & Lifestyle Sessions
 
 Check Availability
 
+https://unsplash.com/photos/grayscale-shot-of-bride-and-groom-FTW8ADj5igs
+https://unsplash.com/photos/united-kingdom-flag-2rfmp5ymooY
+https://unsplash.com/photos/woman-riding-on-back-of-man-zNHOIzjJiyA
+https://unsplash.com/photos/people-inside-conference-cuKJre3nyYc
+https://unsplash.com/photos/a-camera-set-up-in-front-of-a-white-background-hRZhwtLEDfQ
 ------------------------------------------------------------------------------
 
 ## Fine Art & Print Sales
@@ -238,6 +305,10 @@ Digital Downloads Available
 
 Browse Prints
 
+https://unsplash.com/photos/white-sofa-with-throw-pillows-17NCG_wOkMY
+https://unsplash.com/photos/two-assorted-wall-decors-9u2GMRE8MdE
+Photo by Medhat Ayad from Pexels: https://www.pexels.com/photo/assorted-paintings-383568/
+https://unsplash.com/photos/woman-wearing-white-top-photo-exBd9GXAFhs
 ------------------------------------------------------------------------------
 
 ## What Clients Say
@@ -251,6 +322,7 @@ Browse Prints
 “His street photography brings life to the unseen stories of everyday people. Truly inspiring!"
 — David M., Art Collector
 
+Photo by Valeriia Miller from Pexels: https://www.pexels.com/photo/a-vintage-camera-on-a-chair-near-a-plant-8259266/
 ------------------------------------------------------------------------------
 
 ## Ready to Work Together?
