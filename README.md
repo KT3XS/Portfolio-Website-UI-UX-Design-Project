@@ -258,7 +258,7 @@ Browse Prints
 Let’s Bring Your Vision to Life!
 Book a session, request a quote, or reach out with any questions. I’d love to collaborate!
 
-Email: contact@alexcarterphoto.com
+Email: [insert contact email here]
 Phone: +1 *** **** ***
 
 Book now
